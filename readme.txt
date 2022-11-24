@@ -1,1 +1,1 @@
-Murat Furkan Yavaş 211216044
+Ad Soyad:Murat Furkan Yavaş Numara:211216044
